@@ -1,0 +1,9 @@
+main:
+  - title: Sitka, Alaska
+    url: index.html
+  - title: About
+    url: about.html
+  - title: "'15 Work Crew"
+    url: work-crew.html
+  - title: "'15–'16 Winter Fellowships"
+    url: winter-fellowships.html

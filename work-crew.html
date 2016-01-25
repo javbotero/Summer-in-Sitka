@@ -1,0 +1,19 @@
+---
+layout: default
+title: Work Crew
+---
+
+<div class="about-page">
+  <div class="slider">
+    <ul class="slides">
+      {% for img in site.data.images.work-crew-slider %}
+        <li>
+          <img src="{{ site.imagesurl }}work-crew-slider-{{ img.image }}.jpg"> <!-- random image -->
+        </li>
+      {% endfor %}
+    </ul>
+  </div>
+</div>
+
+{% capture my-include %}{% include work-crew.md %}{% endcapture %}
+{{ my-include | markdownify }}

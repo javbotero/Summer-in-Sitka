@@ -1,0 +1,13 @@
+---
+layout: default
+---
+
+<div class="slider">
+  <ul class="slides">
+    {% for img in site.data.images.slider %}
+      <li>
+        <img src="{{ site.imagesurl }}slider-{{ img.image }}.jpg"> <!-- random image -->
+      </li>
+    {% endfor %}
+  </ul>
+</div>

@@ -1,0 +1,47 @@
+body {
+  padding: 0 10%;
+}
+
+nav {
+  background-color: white;
+  margin-top: 3em;
+}
+
+.slider .indicators {
+  display: none;
+}
+
+@media only screen and (min-device-width: 600px) {
+  /* Image carousel */
+  .slider {
+    height: 506px !important;
+  }
+
+  .slider .slides {
+    height: 480px !important;
+  }
+}
+
+.about-page .slider {
+  width: 60%;
+  float: right;
+  margin: 0 0 1em 3em;
+}
+
+.winter-fellowships-page {
+  padding-right: 20%;
+}
+
+.winter-fellowships-page ul li {
+  margin: .8em 2em;
+  list-style: disc;
+}
+
+.winter-fellowships-page ul li li {
+  margin: .8em 2em;
+  list-style: circle;
+}
+
+.own-line {
+  display: block !important;
+}

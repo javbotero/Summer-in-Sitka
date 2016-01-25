@@ -1,0 +1,15 @@
+<h3 class="hide-on-large-only center-align">Summer in Sitka</h3>
+<nav class="z-depth-0">
+  <div class="nav-wrapper">
+    <a href="#!" class="brand-logo grey-text hide-on-med-and-down">Summer in Sitka</a>
+    <ul id="nav-mobile" class="right">
+      {% for page in site.data.nav.main %}
+        {% if page.title %}
+        <li>
+          <a class="grey-text" href="{{ page.url | prepend: site.baseurl }}">{{ page.title }}</a>
+        </li>
+        {% endif %}
+      {% endfor %}
+    </ul>
+  </div>
+</nav>

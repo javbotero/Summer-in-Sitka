@@ -1,0 +1,19 @@
+---
+layout: default
+title: About
+---
+
+<div class="about-page">
+  <div class="slider">
+    <ul class="slides">
+      {% for img in site.data.images.about-slider %}
+        <li>
+          <img src="{{ site.imagesurl }}about-slider-{{ img.image }}.jpg"> <!-- random image -->
+        </li>
+      {% endfor %}
+    </ul>
+  </div>
+</div>
+
+{% capture my-include %}{% include about.md %}{% endcapture %}
+{{ my-include | markdownify }}

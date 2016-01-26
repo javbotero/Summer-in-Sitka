@@ -14,11 +14,11 @@ nav {
 @media only screen and (min-device-width: 600px) {
   /* Image carousel */
   .slider {
-    height: 506px !important;
+    height: 600px !important;
   }
 
   .slider .slides {
-    height: 480px !important;
+    height: 590px !important;
   }
 }
 

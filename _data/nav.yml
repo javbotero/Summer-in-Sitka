@@ -1,9 +1,11 @@
 main:
-  - title: Sitka, Alaska
+  - title: "Sitka, Alaska"
     url: index.html
-  - title: About
+  - title: "About"
     url: about.html
   - title: "'16 Work Crew"
     url: work-crew.html
   - title: "'16–'17 Winter Fellowships"
     url: winter-fellowships.html
+#  - title: "Alumni"
+#    url: alumni.html

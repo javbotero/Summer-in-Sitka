@@ -1,4 +1,4 @@
-#### Sitka Winter Fellows (2015-2016)
+#### Sitka Winter Fellows (2016-2017)
 
 College is over! Life begins. What’s next?
 

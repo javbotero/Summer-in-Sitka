@@ -2,31 +2,29 @@
 
 College is over! Life begins. What’s next?
 
-Sitka Winter Fellowships are the natural evolution of summer Bulldogs on Baranof opportunities. For first-ever year of the program, from September 2014 through May 2015, 12 recent college grads (nine of whom are Yalies) are living in community in 105-year-old [North Pacific Hall](http://fineartscamp.org/facilities/north-pacific-hall/), cooking in a communal kitchen, working for local organizations, becoming immersed in the lovely community of Sitka, Alaska. While Sitka Winter Fellowships are funded fellowships, they are about a rich, meaningful experience, not money.
+Sitka Winter Fellows program, started 2014-'15, is the natural evolution of the summer Sitka opportunities that begin in 2011.
 
-The Winter Fellowship includes: a $150/week stipend for food and incidentals; a $500 stipend to defray the cost of travel to and from Sitka; your own room in North Pacific Hall and the use of communal facilities (living room, kitchen, bathrooms, etc.) shared with other fellows; access to all facilities on the [Sheldon Jackson Campus](http://fineartscamp.org/facilities/); the opportunity to live with eleven other wonderful young people, become part of a wonderful Alaska community, and explore the mountains and ocean and wilderness of Southeast Alaska.
+With 12 Winter Fellows its first year and 14 the second, Sitka Winter Fellows program brings together young people to live "in community," to become immersed in the wonderful community of Sitka, and to have be compensated through a rich, meaningful experience, not money.
 
-Rolling admissions/notification: applying sooner is better than later.
+The Winter Fellowship includes: a $150/week stipend for food and incidentals; a $500 stipend to defray the cost of travel to and from Sitka; your own room on Sheldon Jackson Campus and the use of communal facilities (living room, kitchen, bathrooms, etc.) shared with other fellows; access to all facilities on the [Sheldon Jackson Campus](http://fineartscamp.org/facilities/); the opportunity to live with other wonderful young people, become part of a wonderful Alaska community, and explore the mountains and ocean and wilderness of Southeast Alaska.
+
+Rolling admissions/notification. _Applying sooner is better than later._
 
 _Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) for more information._
 
-The 2015-’16 Sitka Winter Fellowships are hosted by:
+**The 2016-’17 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Longline Fisherman’s Association](http://www.alfafish.org/), [Communication and Outreach Fellow](http://bulldogsonbaranof.com/wp-content/uploads/2015/03/ALFA.doc) _(filled)_
-- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/), [Legal Program Fellow](http://bulldogsonbaranof.com/wp-content/uploads/2015/04/ANDVSA-Part-Time.docx)
-- [City of Sitka](http://cityofsitka.com/), Sitka Comprehensive Plan Fellow (filled)
-- College of the Tongass (laying groundwork for creating a Nunnian college in Sitka) (filled)
-- [Hames Wellness Center](http://www.hamescenter.org/)
-  - [One, potentially two positions (all the same)](http://bulldogsonbaranof.com/wp-content/uploads/2015/03/Hames-Center.docx)
-- [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](http://bulldogsonbaranof.com/wp-content/uploads/2015/03/Island-Institute.docx)
+- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/), [Legal Program Fellow](https://docs.google.com/document/d/1YxFQ1D46OhkivcsDXQWbNV7wgG6VnpgOwPui7bWb3so/edit?usp=sharing)
+- [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing)
+- [Outer Coast College](http://www.outercoast.org/), [College Creation Factotum](https://docs.google.com/document/d/1PaTD3b814nuW6PvmuoFTZATZivGRAMlH71Th1lC-mWQ/edit?usp=sharing)
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
-  - [Arts Administration Fellow](http://bulldogsonbaranof.com/wp-content/uploads/2015/04/Arts-Adminstration-Fellowship.pdf)
-  - [Performing Arts Center Manager](http://bulldogsonbaranof.com/wp-content/uploads/2015/03/SFAC-PAC-Manager.docx)
-  - Potentially one other position
-- [Sitkans Against Family Violence](http://www.safv.org/), [Media Fellow](http://bulldogsonbaranof.com/wp-content/uploads/2015/03/SAFV.docx)
-- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), Long Term Activities Fellow (filled)
-- [Sitka Tribe of Alaska](http://www.sitkatribe.org/), Tlingit Language Revitalization Fellow (filled)
-- [University of Alaska Southeast](http://www.uas.alaska.edu/), [Biology and Fisheries Special Project Coordinator](http://bulldogsonbaranof.com/wp-content/uploads/2015/03/UAS.docx)
+  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing)
+  - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing)
+- [Sitkans Against Family Violence](http://www.safv.org/), [Media Fellow](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing)
+- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/1aRBFmyWmoFFdxwRcmJAkR2zHWd5_eBlIGsPHJFt-ZCc/edit?usp=sharing)
+- [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1), [STEAM Fellow](https://docs.google.com/document/d/1tg49pOaPxd98Za9RiXMprqAskvs4Zkxbros934n_RtI/edit?usp=sharing)
+- [Sitka Tribe of Alaska](http://www.sitkatribe.org/), (position description to come)
+- [University of Alaska Southeast](http://www.uas.alaska.edu/), (position descriptions to come)
 
 Testimonials from 2014-’15 Winter Fellows:
 

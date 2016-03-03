@@ -34,9 +34,17 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Sitka Tribe of Alaska](http://www.sitkatribe.org/), (position description to come)
 
-- [University of Alaska Southeast](http://www.uas.alaska.edu/), (position descriptions to come)
+- [University of Alaska Southeast](http://www.uas.alaska.edu/)
+
+  - [Biology, Science](https://docs.google.com/document/d/1D-ISzW2lfJEy0d-_5foIe80lePK2IujeI3xg3EuDtTE/edit?usp=sharing)
+  
+  - [Writing, Humanities](https://docs.google.com/document/d/1ho6ZsH_pIjZ7axr4y6yGU0SLxu4GuVQPCjPS2VKPy_I/edit?usp=sharing)
+
+  - [Math, Statistics](https://docs.google.com/document/d/14JCgKJJvYVi_PyUePm10bPkCKfdj3lA7tedovj6uHTM/edit?usp=sharing)
 
 We really encourage you contact alumni of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
+
+
 
 >_I don’t think I’ve ever used the phrase “life-affirming” before, but it seems applicable here. Moving to Sitka for the Winter Fellows program has been a totally life-affirming decision. I feel seen, valued, and supported in every aspect of my life._
 

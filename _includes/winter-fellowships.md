@@ -36,13 +36,13 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 
-  - [Biology, Science](https://docs.google.com/document/d/1D-ISzW2lfJEy0d-_5foIe80lePK2IujeI3xg3EuDtTE/edit?usp=sharing)
+  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
   
-  - [Writing, Humanities](https://docs.google.com/document/d/1ho6ZsH_pIjZ7axr4y6yGU0SLxu4GuVQPCjPS2VKPy_I/edit?usp=sharing)
+  - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing)
 
-  - [Math, Statistics](https://docs.google.com/document/d/14JCgKJJvYVi_PyUePm10bPkCKfdj3lA7tedovj6uHTM/edit?usp=sharing)
+  - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing)
 
-We really encourage you contact alumni of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
+We really encourage you contact [alumni](summerinsitka.com/alumni.html) of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
 
 
 

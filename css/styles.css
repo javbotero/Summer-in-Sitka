@@ -45,3 +45,7 @@ nav {
 .own-line {
   display: block !important;
 }
+
+blockquote {
+  border-color: #dddddd;
+}

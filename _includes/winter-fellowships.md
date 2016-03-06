@@ -37,12 +37,12 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 
   - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
-  
+
   - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing)
 
   - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing)
 
-We really encourage you contact [alumni](summerinsitka.com/alumni.html) of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
+We really encourage you contact [alumni](alumni.html) of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
 
 
 
@@ -50,7 +50,7 @@ We really encourage you contact [alumni](summerinsitka.com/alumni.html) of the p
 
 >_At work, I’m an important member of a small team. I’m expected to direct my own projects and think analytically about problems when they arise. My big-picture and small-picture ideas are taken equally seriously, and if they’re good, I get the chance to put them into practice._
 
->_At home, my housemates/fellowfellows teach me things like how to drive stick shift, bake bread, use bear spray, be a better person, think more critically about politics, make potato soup, and run far without hurting my knees._
+>_At home, my housemates/fellows teach me things like how to drive stick shift, bake bread, use bear spray, be a better person, think more critically about politics, make potato soup, and run far without hurting my knees._
 
 >_In Sitka at large, I’m always bumping into colossal generosity. A bunch of strangers band together to help find a stolen bike, and it’s returned within the week. A family opens their home to twelve twenty-somethings on Thanksgiving. A fisherman drops off fifty pounds of free Alaskan salmon (this really happened!!) and then says we should just let her know when we run out, and she’ll bring more. It’s crazy that I lucked into this life. You should definitely apply for this fellowship._
 

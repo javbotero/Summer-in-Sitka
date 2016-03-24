@@ -7,5 +7,5 @@ main:
     url: work-crew.html
   - title: "'16–'17 Winter Fellowships"
     url: winter-fellowships.html
-#  - title: "Alumni"
-#    url: alumni.html
+  - title: "Alumni"
+    url: alumni.html

@@ -14,7 +14,7 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 **The 2016-’17 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/), [Legal Program Fellow](https://docs.google.com/document/d/1YxFQ1D46OhkivcsDXQWbNV7wgG6VnpgOwPui7bWb3so/edit?usp=sharing)
+- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Media Fellow (SAFV)](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
 
 - [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing)
 
@@ -26,13 +26,13 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
   - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing)
 
-- [Sitkans Against Family Violence](http://www.safv.org/), [Media Fellow](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing)
-
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/1aRBFmyWmoFFdxwRcmJAkR2zHWd5_eBlIGsPHJFt-ZCc/edit?usp=sharing)
 
 - [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1), [STEAM Fellow](https://docs.google.com/document/d/1tg49pOaPxd98Za9RiXMprqAskvs4Zkxbros934n_RtI/edit?usp=sharing)
 
 - [Sitka Tribe of Alaska](http://www.sitkatribe.org/), (position description to come)
+
+- [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing)
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 

@@ -4,43 +4,43 @@ Contact info for our alumni is below in case you would like to contact them to a
 
 **Adrian Chiem**  
 Sitka Community Hospital  
-[Adrian.Y.Chiem@gmail.com](mailto: Adrian.Y.Chiem@gmail.com)
+[adrian.y.chiem@gmail.com](mailto: Adrian.Y.Chiem@gmail.com)
 
 **Lisa Gilardi**  
 Hames Center  
-[Lisa.Gilardi@gmail.com](mailto: Lisa.Gilardi@gmail.com)
+[lisa.gilardi@gmail.com](mailto: Lisa.Gilardi@gmail.com)
 
 **Stephanie Gilardi**  
 Sitka Tribe of Alaska  
-[Stephanie.Gilardi@gmail.com](mailto: Stephanie.Gilardi@gmail.com)
+[stephanie.gilardi@gmail.com](mailto: Stephanie.Gilardi@gmail.com)
 
 **Anya Grenier**  
 Alaska Longline Fishermen's Association (ALFA)  
-[Anya.Grenier@gmail.com](mailto: Anya.Grenier@gmail.com)
+[anya.grenier@gmail.com](mailto: Anya.Grenier@gmail.com)
 
 **Anna Lee Hirschi**  
 Sitka Fine Arts Camp  
-[AnnaLHirschi@gmail.com](mailto: AnnaLHirschi@gmail.com)
+[annalhirschi@gmail.com](mailto: AnnaLHirschi@gmail.com)
 
 **Will Hunt**  
 Outer Coast College  
-[WillVHunt@gmail.com](mailto: WillVHunt@gmail.com)
+[willvhunt@gmail.com](mailto: WillVHunt@gmail.com)
 
 **Greta Healy**  
 Sitka Fine Arts Camp  
-[GretaHealy7@gmail.com](mailto: GretaHealy7@gmail.com)
+[gretahealy7@gmail.com](mailto: GretaHealy7@gmail.com)
 
 **Zoë Kitchel**  
 University of Alaska Southeast  
-[Zoe.J.Kitchel@gmail.com](mailto: Zoe.J.Kitchel@gmail.com)
+[zoe.j.kitchel@gmail.com](mailto: Zoe.J.Kitchel@gmail.com)
 
 **Annika Ord**  
 Island Institute  
-[AnnikaOrd@gmail.com](mailto: AnnikaOrd@gmail.com)
+[annikaord@gmail.com](mailto: AnnikaOrd@gmail.com)
 
 **Alyssa Russell**  
 Sitkans Against Family Violence (SAFV) ; Braveheart Volunteers ; ALFA  
-[ARuss947@gmail.com](mailto: ARuss947@gmail.com)
+[auss947@gmail.com](mailto: ARuss947@gmail.com)
 
 **Sarah Swong**  
 StoryLab at Island Institute  

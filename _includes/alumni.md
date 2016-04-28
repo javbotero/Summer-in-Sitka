@@ -3,15 +3,15 @@
 Contact info for our alumni is below in case you would like to contact them to ask about their experiences.
 
 **Zeke Blackwell**  
-Sitka Fine Arts Camp 2014-'15
+Sitka Fine Arts Camp 2014-'15  
 [ezeblack@gmail.com](mailto: ezeblack@gmail.com)
 
-**Adrian Chiem**   
-Sitka Community Hospital 2015-'16
+**Adrian Chiem**  
+Sitka Community Hospital 2015-'16  
 [adrian.y.chiem@gmail.com](mailto: Adrian.Y.Chiem@gmail.com)
 
 **Beata Fiszer**  
-Alaska Longline Fishermen's Association (ALFA) 2014-'15
+Alaska Longline Fishermen's Association (ALFA) 2014-'15  
 [beataklaudia05@gmail.com](mailto: beataklaudia05@gmail.com)
 
 **Lisa Gilardi**    

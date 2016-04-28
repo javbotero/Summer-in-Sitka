@@ -14,8 +14,8 @@ Sitka Community Hospital 2015-'16
 Alaska Longline Fishermen's Association (ALFA) 2014-'15  
 [beataklaudia05@gmail.com](mailto: beataklaudia05@gmail.com)
 
-**Lisa Gilardi**    
-Hames Center 2015-'16
+**Lisa Gilardi**  
+Hames Center 2015-'16  
 [lisa.gilardi@gmail.com](mailto: Lisa.Gilardi@gmail.com)
 
 **Stephanie Gilardi**    

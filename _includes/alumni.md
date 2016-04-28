@@ -42,6 +42,7 @@ Island Institute 2014-'15
 Sitka Fine Arts Camp 2015-'16  
 [annalhirschi@gmail.com](mailto: AnnaLHirschi@gmail.com)
 
+<<<<<<< HEAD
 **Michelle Huang**  
 Sitka Conservation Society 2014-'15  
 [mhuang92@gmail.com](mailto: mhuang92@gmail.com)

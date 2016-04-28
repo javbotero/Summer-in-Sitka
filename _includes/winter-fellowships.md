@@ -18,7 +18,7 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing)
 
-- [Outer Coast College](http://www.outercoast.org/), [College Creation Factotum](https://docs.google.com/document/d/1PaTD3b814nuW6PvmuoFTZATZivGRAMlH71Th1lC-mWQ/edit?usp=sharing)
+- [Outer Coast College](http://www.outercoast.org/), [College Creation Factotum](https://docs.google.com/document/d/1PaTD3b814nuW6PvmuoFTZATZivGRAMlH71Th1lC-mWQ/edit?usp=sharing) _(position has been filled)_
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 

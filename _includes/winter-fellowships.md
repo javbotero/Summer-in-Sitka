@@ -14,7 +14,7 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 **The 2016-’17 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Native Language Revitalization Catalyst](https://docs.google.com/document/d/1hiZsOIRHLr5xGGq8IkuNKUmi5yTPJCwTEwAyb7EyD8A/edit) (position may be filled, but inquiries still welcome, just in case)
+- [Alaska Native Language Revitalization Catalyst](https://docs.google.com/document/d/1hiZsOIRHLr5xGGq8IkuNKUmi5yTPJCwTEwAyb7EyD8A/edit) (Position may be filled, but inquiries still welcome, just in case.)
 
 - [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Media Fellow (SAFV)](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
 

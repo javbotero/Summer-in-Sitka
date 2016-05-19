@@ -16,11 +16,11 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Alaska Native Language Revitalization Catalyst](https://docs.google.com/document/d/1hiZsOIRHLr5xGGq8IkuNKUmi5yTPJCwTEwAyb7EyD8A/edit) (Position may be filled, but inquiries still welcome, just in case.)
 
-- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Media Fellow (SAFV)](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
+- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Media Fellow (SAFV)](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.) _(position has been filled)_
 
-- [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing)
+- [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing) _(position has been filled)_
 
-- [Outer Coast College](http://www.outercoast.org/), [College Creation Factotum](https://docs.google.com/document/d/1PaTD3b814nuW6PvmuoFTZATZivGRAMlH71Th1lC-mWQ/edit?usp=sharing) _(position has been filled)_
+- [Outer Coast College](http://www.outercoast.org/), [College Creation Factotum, two positions](https://docs.google.com/document/d/1PaTD3b814nuW6PvmuoFTZATZivGRAMlH71Th1lC-mWQ/edit?usp=sharing) _(positions have been filled)_
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
@@ -34,13 +34,13 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Sitka Tribe of Alaska](http://www.sitkatribe.org/), (position description to come)
 
-- [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing)
+- [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing) _(position has been filled)_
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 
   - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
 
-  - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing)
+  - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing) _(position has been filled)_
 
   - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing)
 

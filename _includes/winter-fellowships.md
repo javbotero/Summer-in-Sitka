@@ -24,21 +24,21 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
-  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing)
+  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing) _(position has been filled)_
 
   - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing)
 
-- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/1aRBFmyWmoFFdxwRcmJAkR2zHWd5_eBlIGsPHJFt-ZCc/edit?usp=sharing)
+- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/1aRBFmyWmoFFdxwRcmJAkR2zHWd5_eBlIGsPHJFt-ZCc/edit?usp=sharing) _(position has been filled)_
 
-- [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1), [STEAM Fellow](https://docs.google.com/document/d/1tg49pOaPxd98Za9RiXMprqAskvs4Zkxbros934n_RtI/edit?usp=sharing)
-
-- [Sitka Tribe of Alaska](http://www.sitkatribe.org/), (position description to come)
+- [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1), [STEAM Fellow](https://docs.google.com/document/d/1tg49pOaPxd98Za9RiXMprqAskvs4Zkxbros934n_RtI/edit?usp=sharing) _(position has been filled)_
 
 - [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing) _(position has been filled)_
 
+- [U.S. Forest Service](http://www.fs.usda.gov/tongass/), (position description to come)
+
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 
-  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
+  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing) _(position has been filled)_
 
   - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing) _(position has been filled)_
 

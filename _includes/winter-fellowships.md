@@ -34,7 +34,7 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing) _(position has been filled)_
 
-- [U.S. Forest Service](http://www.fs.usda.gov/tongass/), (position description to come)
+- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (position description to come)
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 

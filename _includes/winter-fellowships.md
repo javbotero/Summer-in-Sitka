@@ -14,8 +14,6 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 **The 2016-’17 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Native Language Revitalization Catalyst](https://docs.google.com/document/d/1hiZsOIRHLr5xGGq8IkuNKUmi5yTPJCwTEwAyb7EyD8A/edit) (Position may be filled, but inquiries still welcome, just in case.)
-
 - [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Media Fellow (SAFV)](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.) _(position has been filled)_
 
 - [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing) _(position has been filled)_
@@ -24,9 +22,9 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
-  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing) _(position has been filled)_
+  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing)
 
-  - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing)
+  - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing) _(position has been filled)_
 
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/1aRBFmyWmoFFdxwRcmJAkR2zHWd5_eBlIGsPHJFt-ZCc/edit?usp=sharing) _(position has been filled)_
 
@@ -34,7 +32,7 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing) _(position has been filled)_
 
-- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (position description to come)
+- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building: email jonathan.s.kt@gmail.com for more information)
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 

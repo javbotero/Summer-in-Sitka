@@ -2,7 +2,7 @@
 
 College is over! Life begins. What’s next?
 
-Sitka Winter Fellows program, started 2014-'15, is the natural evolution of the summer Sitka opportunities that begin in 2011.
+Sitka Winter Fellows program, started 2014-'15, is the natural evolution of the summer Sitka opportunities that began in 2011.
 
 With 12 Winter Fellows its first year and 14 the second, Sitka Winter Fellows program brings together young people to live "in community," to become immersed in the wonderful community of Sitka, and to have be compensated through a rich, meaningful experience, not money.
 
@@ -10,7 +10,7 @@ The Winter Fellowship includes: $150/week stipend for food and incidentals; $500
 
 Rolling admissions/notification. _Applying sooner is better than later._
 
-Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) for more information.
+All of the 2016-'17 positions are filled. To stay apprised of 2017-'18 positions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) to be added to an updates list.
 
 **The 2016-’17 Sitka Winter Fellows positions are hosted by:**
 
@@ -22,7 +22,7 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
-  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing)
+  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing) _(position has been filled)_
 
   - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing) _(position has been filled)_
 
@@ -32,11 +32,11 @@ Applications are in hyperlinks below, or email [Jonathan Kreiss-Tomkins](mailto:
 
 - [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing) _(position has been filled)_
 
-- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building: email jonathan.s.kt@gmail.com for more information)
+- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building) _(position has been filled)_
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
 
-  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
+  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing) _(position has been filled)_
 
   - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing) _(position has been filled)_
 

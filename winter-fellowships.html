@@ -4,15 +4,17 @@ title: Winter Fellowships
 ---
 
 <div class="winter-fellowships-page">
-    <div class="slider">
-    <ul class="slides">
-      {% for img in site.data.images.winter-fellowships-slider %}
-        <li>
-          <img src="{{ site.imagesurl }}winter-fellowships-slider-{{ img.image }}.jpg" alt="Winter Fellows"> <!-- random image -->
-        </li>
-      {% endfor %}
-    </ul>
-  </div>
+    <div class="about-page">
+        <div class="slider">
+        <ul class="slides">
+          {% for img in site.data.images.winter-fellowships-slider %}
+            <li>
+              <img src="{{ site.imagesurl }}winter-fellowships-slider-{{ img.image }}.jpg" alt="Winter Fellows"> <!-- random image -->
+            </li>
+          {% endfor %}
+        </ul>
+      </div>
+    </div>
   {% capture my-include %}{% include winter-fellowships.md %}{% endcapture %}
   {{ my-include | markdownify }}
 </div>

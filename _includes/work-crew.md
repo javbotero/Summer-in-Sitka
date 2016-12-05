@@ -9,6 +9,6 @@ While the campus has become a nexus of creative and cultural energy (symposiums,
 
 [Dates are July and August.](http://fineartscamp.org/programs/historic-restoration/) Rolling (and also expedited) admissions/notification. Room and board is provided. Just get yourself to and from Sitka; the rest is taken care of.
 
-Interested? [Fill out and send in the app](http://fineartscamp.org/wp-content/uploads/2012/12/Historic-Restoration-Application-2015.pdf).
+Interested? [Fill out and send in the app](https://sitkafinearts.campintouch.com/ui/forms/application/staff/App).
 
 Also, check out Laura Blake’s (Yale ’12) [“Mind in Hand”](http://www.thenewjournalatyale.com/2012/09/mind-in-hand/) and [a summary](http://fineartscamp.org/wp-content/uploads/2012/12/Sitka-Historic-Restoration-Internship-2014-Summary.pdf) of the 2014 Work Crew’s work.

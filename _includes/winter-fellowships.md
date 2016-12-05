@@ -4,13 +4,15 @@ College is over! Life begins. What’s next?
 
 Sitka Winter Fellows program, started 2014-'15, is the natural evolution of the summer Sitka opportunities that began in 2011.
 
-With 12 Winter Fellows its first year and 14 the second, Sitka Winter Fellows program brings together young people to live "in community," to become immersed in the wonderful community of Sitka, and to have be compensated through a rich, meaningful experience, not money.
+With 12 Winter Fellows its first year, 14 the second, and 15 in the third, Sitka Winter Fellows program brings together young people to live "in community," to become immersed in the wonderful community of Sitka, and to have be compensated primarily through a rich, meaningful experience.
 
 The Winter Fellowship includes: $150/week stipend for food and incidentals; $500 stipend to defray the cost of travel to and from Sitka; your own room on Sheldon Jackson Campus and the use of communal facilities (living room, kitchen, bathrooms, etc.) shared with other fellows; access to all facilities on the [Sheldon Jackson Campus](http://fineartscamp.org/facilities/); the opportunity to live with other wonderful young people, become part of a wonderful Alaska community, and explore the mountains and ocean and wilderness of Southeast Alaska.
 
 Rolling admissions/notification. _Applying sooner is better than later._
 
-All of the 2016-'17 positions are filled. To stay apprised of 2017-'18 positions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) to be added to an updates list.
+To stay apprised of 2017-'18 positions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) to be added to an updates list.
+
+See below for 2016-'17 positions, to get a sense of the breadth of what's available. Some of these organizations will host again in 2017-'18. There may be other, new organizations hosting positions as well.
 
 **The 2016-’17 Sitka Winter Fellows positions are hosted by:**
 

@@ -2,9 +2,9 @@
 
 Sitka is a small Alaska community in the heart of the world’s largest temperate rainforest, perched on the North Pacific, set among mountains and glaciers.
 
-Sitka isn’t just scenery. You know how we spend our lives trying to find love with someone else? That’s plenty important, of course! But what about finding love with place? People in Sitka love where they live — unabashed, star-crossed, Romeo-with-Juliet romance — that creates a closeness of community that will warm even the most frayed, threadbare spiritual fibers of your soul. This is why people fall in love with Sitka.
+Sitka isn’t just scenery. You know how we spend our lives trying to find love with someone else? That’s plenty important, of course! But what about finding love with place? People in Sitka love where they live. People who visit Sitka love this place. You will too.
 
-Over 200 students, initially from Yale* and now from colleges across America, have come to Sitka the last five years. You can too. There is the [Historical Restoration Work Crew](work-crew.html) and summer internships, and year-long [Winter Fellows positions](winter-fellowships.html) for college grads. Plus, there’s the [Sitka Fellows Program](http://www.islandinstitutealaska.org/programs/sitkafellows).
+Over 250 students, initially from Yale* and now from colleges across America, have come to Sitka the last five years. You can too. There is the [Historical Restoration Work Crew](work-crew.html) and summer internships, and year-long [Winter Fellows positions](winter-fellowships.html) for those graduating or graduated. Plus, there’s the [Sitka Fellows Program](http://www.islandinstitutealaska.org/programs/sitkafellows).
 
 (* In 2015, Yale's Office of Career Strategy [identified](http://www.washingtontimes.com/news/2015/aug/8/sitka-program-top-draw-for-yale-students/?page=all) Sitka as the number one worldwide destination for Yale undergrads seeking OCS opportunities, exceeding placements in cities such as San Francisco and London.)
 

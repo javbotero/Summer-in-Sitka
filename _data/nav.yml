@@ -3,9 +3,9 @@ main:
     url: index.html
   - title: "About"
     url: about.html
-  - title: "'16 Work Crew"
+  - title: "'17 Work Crew"
     url: work-crew.html
-  - title: "'16–'17 Winter Fellowships"
+  - title: "'17–'18 Winter Fellowships"
     url: winter-fellowships.html
   - title: "Alumni"
     url: alumni.html

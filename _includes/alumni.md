@@ -1,10 +1,60 @@
 #### Alumni
 
-Contact info for Sitka Winter Fellows alumni is below in case you would like to contact them to ask about their experiences.
+Contact info for Sitka Winter Fellows alumni is below in case you would like to contact them to ask about their experiences. Please do not hesitate to reach out! 
+
 **2016-2017 Sitka Winter Fellows** 
 **Shoshi Bieler**  
 Sitka School District 2016-'17  
-[shoshigb (at) gmail (dot) com] (mailto: shoshigb@gmail.com)
+[shoshigb (AT) gmail (DOT) com]
+
+**Harry Choee** 
+Outer Coast 2016-'17  
+[hchoee25 (AT) gmail (DOT) com]
+
+**Will Conlon**  
+Sitkans Against Family Violence (SAFV) & Alaska Network on Domestic Violence and Sexual Assault (ANDVSA) 2016-'17
+[willconlon1 (AT) gmail (DOT) com]
+
+**Cecilia Dumouchel**  
+Outer Coast 2016-'17  
+[ckdumouchel (AT) gmail (DOT) com]
+
+**Renusha Indralingam**  
+Sitka Community Hospital 2016-'17
+[renusha.indralingam (AT) aya.yale (DOT) edu]
+
+**Maia Mares**  
+United States Forest Service 2016-'17
+[maiamares2014 (AT) gmail (DOT) edu]
+
+**Paul McGlew**  
+Sitka Fine Arts Camp 2016-'17
+[pcmcglew (AT) gmail (DOT) com]
+
+**Megan Meier**  
+Sitka Fine Arts Camp 2016-'17
+[megan.meier21 (AT) yahoo (DOT) com]
+
+**Michelle Parke**  
+University of Alaska Southeast 2016-'17
+[mparke2 (AT) alaska (DOT) edu]
+
+**Meredith Redick**  
+University of Alaska Southeast 2016-'17
+[meredithredick (AT) gmail (DOT) com]
+
+**Noah Star**  
+Trans-Alaska Trail 2016-'17 
+[noahistar (AT) gmail (DOT) com]
+
+**Victor Paredes Wong**  
+Sitka Fine Arts Camp 2016-'17
+[victor (AT) fineartscamp (DOT) org]
+
+**Wesley Yiin**  
+University of Alaska Southeast 2016-'17
+[wesleyyiin (AT) gmail (DOT) com]
+
 
 **2015-2016 Sitka Winter Fellows**
 **Adrian Chiem**  
@@ -50,6 +100,7 @@ Sitkans Against Family Violence (SAFV) ; Braveheart Volunteers ; ALFA  2015-'16
 **Sarah Swong**  
 Island Institute 2015-'16  
 [swong.sarah@gmail.com](mailto: swong.sarah@gmail.com)
+
 
 **2014-2015 Sitka Winter Fellows** 
 **Zeke Blackwell**  

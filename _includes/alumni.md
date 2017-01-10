@@ -17,7 +17,7 @@ Sitkans Against Family Violence & Alaska Network on Domestic Violence and Sexual
 willconlon1 (AT) gmail (DOT) com
 
 **Cecilia Dumouchel**  
-Outer Coast 2016-'17
+Outer Coast 2016-'17  
 ckdumouchel (AT) gmail (DOT) com
 
 **Renusha Indralingam**  

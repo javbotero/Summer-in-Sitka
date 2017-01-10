@@ -6,15 +6,15 @@ Contact info for Sitka Winter Fellows alumni is below in case you would like to 
 
 **Shoshi Bieler**  
 Sitka School District 2016-'17  
-[shoshigb (AT) gmail (DOT) com]
+shoshigb (AT) gmail (DOT) com
 
 **Harry Choee** 
 Outer Coast 2016-'17  
-[hchoee25 (AT) gmail (DOT) com]
+hchoee25 (AT) gmail (DOT) com
 
 **Will Conlon**  
 Sitkans Against Family Violence (SAFV) & Alaska Network on Domestic Violence and Sexual Assault (ANDVSA) 2016-'17
-[willconlon1 (AT) gmail (DOT) com]
+willconlon1 (AT) gmail (DOT) com
 
 **Cecilia Dumouchel**  
 Outer Coast 2016-'17  

@@ -2,7 +2,7 @@
 
 Contact info for Sitka Winter Fellows alumni is below in case you would like to contact them to ask about their experiences. Please do not hesitate to reach out! 
 
-##**2016-2017 Sitka Winter Fellows** 
+## 2016-2017 Sitka Winter Fellows
 
 **Shoshi Bieler**  
 Sitka School District 2016-'17  
@@ -57,7 +57,7 @@ University of Alaska Southeast 2016-'17
 wesleyyiin (AT) gmail (DOT) com
 
 
-##**2015-2016 Sitka Winter Fellows**
+## 2015-2016 Sitka Winter Fellows
 
 **Adrian Chiem**  
 Sitka Community Hospital 2015-'16  
@@ -104,7 +104,7 @@ Island Institute 2015-'16
 [swong.sarah@gmail.com](mailto: swong.sarah@gmail.com)
 
 
-##**2014-2015 Sitka Winter Fellows** 
+## 2014-2015 Sitka Winter Fellows
 
 **Zeke Blackwell**  
 Sitka Fine Arts Camp 2014-'15  

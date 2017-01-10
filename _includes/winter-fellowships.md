@@ -10,7 +10,7 @@ The Winter Fellowship includes: $150/week stipend for food and incidentals; $500
 
 Rolling admissions/notification. _Applying sooner is better than later._
 
-To stay apprised of 2017-'18 positions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) to be added to an updates list.
+To stay apprised of 2017-'18 positions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com), [Shoshi Bieler](mailto:shoshigb@gmail.com), and [Noah Star](mailto:noahistar@gmail.com) to be added to an updates list.
 
 See below for 2016-'17 positions, to get a sense of the breadth of what's available. Some of these organizations will host again in 2017-'18. There may be other, new organizations hosting positions as well.
 

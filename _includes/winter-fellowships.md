@@ -34,7 +34,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
   - [Math, Statistics](https://docs.google.com/document/d/1JdcWblpuPkwDAjwJex9KkoLBN16IeTbws4ZfjqX7zek/edit?usp=sharing) 
   
-  - [Trans-Alaska Trail](http://www.aktrail.org), [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
+ - [Trans-Alaska Trail](http://www.aktrail.org), [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
   
 
 **Check back soon for more information on 2017-'18 fellowships with the following organizations:**

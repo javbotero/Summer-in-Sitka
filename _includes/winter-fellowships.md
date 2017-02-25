@@ -22,7 +22,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 - [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1) 
   - [STEAM Fellow](https://docs.google.com/document/d/1xi5E3P6Y0r1fOCMqCpIKBJEhO97ltrKLRc4JD5j_Ois/edit?usp=sharing) 
-  - [Education Policy Researcher Fellow] _(please check back soon for a job description)_ 
+  - Education Policy Researcher Fellow _(please check back soon for a job description)_ 
 
 - [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building) 
 
@@ -35,6 +35,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing) 
 
 **Check back soon for more information on 2017-'18 fellowships with the following organizations:**
+
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index)

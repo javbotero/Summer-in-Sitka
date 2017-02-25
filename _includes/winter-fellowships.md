@@ -10,13 +10,13 @@ The Winter Fellowship includes: $150/week stipend for food and incidentals; $500
 
 Rolling admissions/notification. _Applying sooner is better than later._
 
-To stay apprised of 2017-'18 positions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com), [Shoshi Bieler](mailto:shoshigb@gmail.com), and [Noah Star](mailto:noahistar@gmail.com) to be added to an updates list.
+To stay apprised of the 2017-'18 fellowship, or with questions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com), [Shoshi Bieler](mailto:shoshigb@gmail.com), and [Noah Star](mailto:noahistar@gmail.com).
 
-See below for 2016-'17 positions, to get a sense of the breadth of what's available. Some of these organizations will host again in 2017-'18. There may be other, new organizations hosting positions as well.
+See below for the current 2017-'18 positions. Additional positions will be added shortly, so please check back again soon! 
 
-**The 2016-’17 Sitka Winter Fellows positions are hosted by:**
+**The 2017-’18 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Media Fellow (SAFV)](https://docs.google.com/document/d/15X4MY181SAnqumbuEhNbFQH-jnGKFNICeGHjr0KdWcg/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.) _(position has been filled)_
+- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
 
 - [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing) _(position has been filled)_
 

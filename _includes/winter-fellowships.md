@@ -28,11 +28,14 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to tutor in the following subject areas:
 
-  - [Biology, Science Coach](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
+  - [Biology, Science Coach](https://docs.google.com/document/d/1zIDETvMZLS_jJFSUNx1d6mqp3zNoIthUkvINREgwudg/edit?usp=sharing)
 
-  - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing) 
+  - [Writing, Humanities](https://docs.google.com/document/d/1sJ8hEclqwDSD1FECy31tUzh-j2cM2_CV_XXkhVuPt24/edit?usp=sharing) 
 
-  - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing) 
+  - [Math, Statistics](https://docs.google.com/document/d/1JdcWblpuPkwDAjwJex9KkoLBN16IeTbws4ZfjqX7zek/edit?usp=sharing) 
+  
+  - [Trans-Alaska Trail](http://www.aktrail.org), [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
+  
 
 **Check back soon for more information on 2017-'18 fellowships with the following organizations:**
 
@@ -40,7 +43,9 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index)
 
-- [Trans-Alaska Trail](http://www.aktrail.org)
+And other organizations that do great public works, public advocacy, and educational work in our Sitka and Alaskan community! More to come soon. 
+
+
 
 We really encourage you contact [alumni](alumni.html) of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
 

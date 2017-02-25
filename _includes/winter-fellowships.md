@@ -18,31 +18,28 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 - [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
 
-- [Island Institute](http://www.iialaska.org/), [Sitka Story Lab Coordinator](https://docs.google.com/document/d/1NES-zkMKsWem1WJ5pXNx312cldHVmsabft5J8Lp3O-c/edit?usp=sharing) _(position has been filled)_
+- [Outer Coast College](http://www.outercoast.org/), [Primary Collaborator](https://docs.google.com/document/d/1a5zWwTHmFR4aMKfioUfiLmd5olFHgd7POhda5SPkbS0/edit?usp=sharing)
 
-- [Outer Coast College](http://www.outercoast.org/), [College Creation Factotum, two positions](https://docs.google.com/document/d/1PaTD3b814nuW6PvmuoFTZATZivGRAMlH71Th1lC-mWQ/edit?usp=sharing) _(positions have been filled)_
+- [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1) 
+  - [STEAM Fellow](https://docs.google.com/document/d/1xi5E3P6Y0r1fOCMqCpIKBJEhO97ltrKLRc4JD5j_Ois/edit?usp=sharing) 
+  - [Education Policy Researcher Fellow] _(please check back soon for a job description)_ 
 
+- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building) 
+
+- [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to tutor in the following subject areas:
+
+  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing)
+
+  - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing) 
+
+  - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing) 
+
+**Check back soon for more information on 2017-'18 fellowships with the following organizations:**
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
-  - [Events](https://docs.google.com/document/d/1LwbURkdgxX5meunD90qX0D18zWkmj3QuxW3nZNfA1N4/edit?usp=sharing) _(position has been filled)_
+- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index)
 
-  - [Performing Arts Center Manager](https://docs.google.com/document/d/10Dgkfk-6_gc5B05buKHQ1Wx-fZNzXmtG7PCXkCUTiio/edit?usp=sharing) _(position has been filled)_
-
-- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/1aRBFmyWmoFFdxwRcmJAkR2zHWd5_eBlIGsPHJFt-ZCc/edit?usp=sharing) _(position has been filled)_
-
-- [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1), [STEAM Fellow](https://docs.google.com/document/d/1tg49pOaPxd98Za9RiXMprqAskvs4Zkxbros934n_RtI/edit?usp=sharing) _(position has been filled)_
-
-- [Trans-Alaska Trail](http://www.aktrail.org), [Make-the-trail-a-reality Fellow](https://docs.google.com/document/d/1tJDa23HhfScjSulJewgqlFsKg8e2JZ9p9Dx_Hhsph54/edit?usp=sharing) _(position has been filled)_
-
-- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building) _(position has been filled)_
-
-- [University of Alaska Southeast](http://www.uas.alaska.edu/)
-
-  - [Biology, Science](https://docs.google.com/document/d/1IBR1r2nQKVRbUECsx-cShzoQUeAe5U3ydCBOWqRey1Y/edit?usp=sharing) _(position has been filled)_
-
-  - [Writing, Humanities](https://docs.google.com/document/d/14PrU833cwZGqbGGsc4CPIkflX2VG8F6_49_CFF9BOn4/edit?usp=sharing) _(position has been filled)_
-
-  - [Math, Statistics](https://docs.google.com/document/d/1Kyk1TUpDH5vW3M7kVT15B4MJVNLI0mz-4TNrZWX1nnE/edit?usp=sharing) _(position has been filled)_
+- [Trans-Alaska Trail](http://www.aktrail.org)
 
 We really encourage you contact [alumni](alumni.html) of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
 

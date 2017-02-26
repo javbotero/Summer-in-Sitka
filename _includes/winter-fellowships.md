@@ -28,7 +28,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
  - [Trans-Alaska Trail](http://www.aktrail.org), [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
 
-- [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to tutor in the following subject areas:
+- [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as an academic coach in the following subject areas:
 
   - [Biology, Science Coach](https://docs.google.com/document/d/1zIDETvMZLS_jJFSUNx1d6mqp3zNoIthUkvINREgwudg/edit?usp=sharing)
 

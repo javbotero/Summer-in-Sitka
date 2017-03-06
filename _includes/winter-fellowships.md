@@ -16,19 +16,24 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 **The 2017-’18 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/), [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
+- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/)
+  - [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
 
-- [Outer Coast College](http://www.outercoast.org/), [Primary Collaborator Fellow](https://docs.google.com/document/d/1a5zWwTHmFR4aMKfioUfiLmd5olFHgd7POhda5SPkbS0/edit?usp=sharing)
+- [Outer Coast College](http://www.outercoast.org/) 
+  - [Primary Collaborator Fellow](https://docs.google.com/document/d/1a5zWwTHmFR4aMKfioUfiLmd5olFHgd7POhda5SPkbS0/edit?usp=sharing)
 
 - [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1) 
   - [STEAM Fellow](https://docs.google.com/document/d/1xi5E3P6Y0r1fOCMqCpIKBJEhO97ltrKLRc4JD5j_Ois/edit?usp=sharing) 
   - Education Policy Researcher Fellow _(please check back soon for a job description)_ 
 
-- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building), [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
+- [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building) 
+  - [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
 
- - [Trans-Alaska Trail](http://www.aktrail.org), [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
+ - [Trans-Alaska Trail](http://www.aktrail.org) 
+   - [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
  
-  - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
+ - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index) 
+   - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as an academic coach in the following subject areas:
 

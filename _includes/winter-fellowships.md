@@ -27,6 +27,8 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building), [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
 
  - [Trans-Alaska Trail](http://www.aktrail.org), [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
+ 
+  - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index), [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as an academic coach in the following subject areas:
 
@@ -42,7 +44,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
 
-- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index)
+
 
 And other organizations that do great public works, public advocacy, and educational work in our Sitka and Alaskan community! More to come soon. 
 

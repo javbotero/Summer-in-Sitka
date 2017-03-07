@@ -35,15 +35,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index) 
   - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
 
-- [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as an academic coach in the following subject areas:
-
-  - [Biology, Science Coach](https://docs.google.com/document/d/1zIDETvMZLS_jJFSUNx1d6mqp3zNoIthUkvINREgwudg/edit?usp=sharing)
-
-  - [Writing, Humanities](https://docs.google.com/document/d/1sJ8hEclqwDSD1FECy31tUzh-j2cM2_CV_XXkhVuPt24/edit?usp=sharing) 
-
-  - [Math, Statistics](https://docs.google.com/document/d/1JdcWblpuPkwDAjwJex9KkoLBN16IeTbws4ZfjqX7zek/edit?usp=sharing) 
-  
-  
+- [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as part of the university environment. Please contact noahistar@gmail.com and shoshigb@gmail.com to learn more. 
 
 **Check back soon for more information on 2017-'18 fellowships with the following organizations:**
 

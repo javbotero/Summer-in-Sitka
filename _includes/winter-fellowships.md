@@ -20,7 +20,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.)
 
 - [Outer Coast College](http://www.outercoast.org/) 
-  - [Primary Collaborator Fellow](https://docs.google.com/document/d/1a5zWwTHmFR4aMKfioUfiLmd5olFHgd7POhda5SPkbS0/edit?usp=sharing)
+  - [Primary Collaborator Fellow](https://docs.google.com/document/d/1LE2ICn-_Q24TRps2Z2RbByaSJXNwzLIYm9QwBmRRwYo/edit)
 
 - [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1) 
   - [STEAM Fellow](https://docs.google.com/document/d/1xi5E3P6Y0r1fOCMqCpIKBJEhO97ltrKLRc4JD5j_Ois/edit?usp=sharing) 

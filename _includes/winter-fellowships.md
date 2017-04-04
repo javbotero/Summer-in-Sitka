@@ -36,9 +36,9 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as part of the university environment. 
--[Recruitment and Engagement Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
--[Science Coach Fellow](https://docs.google.com/document/d/1vDoYi2E26-qJImjtBXLIA0-sucANULjWtLE4OE51xtY/edit?usp=sharing) 
--[Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit?usp=sharing) 
+  -[Recruitment and Engagement Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
+  -[Science Coach Fellow](https://docs.google.com/document/d/1vDoYi2E26-qJImjtBXLIA0-sucANULjWtLE4OE51xtY/edit?usp=sharing) 
+  -[Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit?usp=sharing) 
 
 **Check back soon for more information on 2017-'18 fellowships with the following organizations:**
 

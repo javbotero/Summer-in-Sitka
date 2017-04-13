@@ -40,15 +40,10 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Science Coach Fellow](https://docs.google.com/document/d/1vDoYi2E26-qJImjtBXLIA0-sucANULjWtLE4OE51xtY/edit?usp=sharing) 
   - [Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit?usp=sharing) 
 
-**Check back soon for more information on 2017-'18 fellowships with the following organizations:**
-
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
-
-
+  - [Fine Arts Camp Fellow](https://docs.google.com/document/d/1sdvRp9OxyMnl5YypxGZoX8jsea9xtLH50GcClmRQp_4/edit?usp=sharing) 
 
 And other organizations that do great public works, public advocacy, and educational work in our Sitka and Alaskan community! More to come soon. 
-
-
 
 We really encourage you to contact [alumni](alumni.html) of the program to get a better sense of Sitka Winter Fellows and host organizations. Retrospections, below, from alumni:
 

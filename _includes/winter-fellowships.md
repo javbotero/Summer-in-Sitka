@@ -41,7 +41,10 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit?usp=sharing) 
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
-  - [Fine Arts Camp Fellow](https://docs.google.com/document/d/1sdvRp9OxyMnl5YypxGZoX8jsea9xtLH50GcClmRQp_4/edit?usp=sharing) 
+  - [Performing Arts Center Manager Fellow](https://docs.google.com/document/d/1sdvRp9OxyMnl5YypxGZoX8jsea9xtLH50GcClmRQp_4/edit?usp=sharing) 
+  
+- [Alaska Huts Association](http://fineartscamp.org/). (_Position has been filled._)
+  - [Alaska Outdoor Recreation Policy Fellow](https://docs.google.com/document/d/1yysxa5sfkxM3oP3H1AVJZXW0m1S7agXtxwK9kuw5GIM/edit?usp=sharing)
 
 And other organizations that do great public works, public advocacy, and educational work in our Sitka and Alaskan community! More to come soon. 
 

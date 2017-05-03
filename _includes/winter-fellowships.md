@@ -32,7 +32,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [Trans-Alaska Trail](http://www.aktrail.org) 
   - [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
  
-- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index) (Position has been filled.)
+- [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index). (_Position has been filled._)
   - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as part of the university environment. 

@@ -29,16 +29,16 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [U.S. Forest Service](http://www.fs.usda.gov/tongass/) (community relations, communications, coalition-building) 
   - [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
 
-- [Trans-Alaska Trail](http://www.aktrail.org) 
-  - [Make-a-trail-a-reality Fellow](https://docs.google.com/document/d/1Pn79d1uAqaGD7GmQxwhl75tiQVLKqpEOp_njFUOuAsY/edit?usp=sharing) 
+- [Trans-Alaska Trail](http://www.aktrail.org). (_Position has been filled._)
+  - [Make-a-trail-a-reality Fellow] 
  
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index). (_Position has been filled._)
   - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) 
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/). Looking to hire several fellows to serve as part of the university environment. 
   - [Recruitment and Engagement Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
-  - [Science Coach Fellow](https://docs.google.com/document/d/1vDoYi2E26-qJImjtBXLIA0-sucANULjWtLE4OE51xtY/edit?usp=sharing) 
-  - [Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit?usp=sharing) 
+  - [Science Coach Fellow](https://docs.google.com/document/d/1vDoYi2E26-qJImjtBXLIA0-sucANULjWtLE4OE51xtY/edit) 
+  - [Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit) 
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
   - [Performing Arts Center Manager Fellow](https://docs.google.com/document/d/1sdvRp9OxyMnl5YypxGZoX8jsea9xtLH50GcClmRQp_4/edit?usp=sharing) 

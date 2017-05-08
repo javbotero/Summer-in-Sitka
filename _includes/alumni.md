@@ -8,6 +8,10 @@ Contact info for Sitka Winter Fellows alumni is below in case you would like to 
 Sitka School District 2016-'17  
 shoshigb (AT) gmail (DOT) com
 
+**Noah Star**  
+Trans-Alaska Trail 2016-'17  
+noahistar (AT) gmail (DOT) com
+
 **Harry Choee** 
 Outer Coast 2016-'17  
 hchoee25 (AT) gmail (DOT) com
@@ -32,6 +36,10 @@ maiamares2014 (AT) gmail (DOT) com
 Sitka Fine Arts Camp 2016-'17  
 pcmcglew (AT) gmail (DOT) com
 
+**Caroline Zhang**  
+University of Alaska Southeast 2016-'17  
+caroline.t.zhang (AT) gmail (DOT) com
+
 **Megan Meier**  
 Sitka Fine Arts Camp 2016-'17  
 megan.meier21 (AT) yahoo (DOT) com
@@ -44,9 +52,7 @@ mparke2 (AT) alaska (DOT) edu
 University of Alaska Southeast 2016-'17  
 meredithredick (AT) gmail (DOT) com
 
-**Noah Star**  
-Trans-Alaska Trail 2016-'17  
-noahistar (AT) gmail (DOT) com
+
 
 **Victor Paredes Wong**  
 Sitka Fine Arts Camp 2016-'17  

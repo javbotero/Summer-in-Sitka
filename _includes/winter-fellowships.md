@@ -10,7 +10,7 @@ The Winter Fellowship runs from August 28, 2017 to May 18, 2018. The program inc
 
 Rolling admissions/notification. _Applying sooner is better than later._
 
-To stay apprised of the 2017-'18 fellowship, or with questions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com), [Shoshi Bieler](mailto:shoshigb@gmail.com), and [Noah Star](mailto:noahistar@gmail.com).
+To stay apprised of the 2017-'18 fellowship, or with questions, email [Jonathan Kreiss-Tomkins](mailto:jonathan.s.kt@gmail.com) and [Meredith Redick](mailto:meredithredick@gmail.com).
 
 See below for the current 2017-'18 positions. Additional positions will be added shortly, so please check back again soon! 
 
@@ -23,14 +23,14 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Primary Collaborator Fellow](https://docs.google.com/document/d/1LE2ICn-_Q24TRps2Z2RbByaSJXNwzLIYm9QwBmRRwYo/edit)
 
 - [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1) 
-  - [STEAM Fellow](https://docs.google.com/document/d/1xi5E3P6Y0r1fOCMqCpIKBJEhO97ltrKLRc4JD5j_Ois/edit?usp=sharing) 
-  - [Education Policy Researcher Fellow](https://docs.google.com/document/d/1xnkHOGFooMRV_r5aMgx2PPz-mDtOL2SPDHmpoMNPF2k/edit?usp=sharing)
+  - [STEAM Fellow](https://docs.google.com/document/d/1xi5E3P6Y0r1fOCMqCpIKBJEhO97ltrKLRc4JD5j_Ois/edit?usp=sharing) (_Position has been filled._)
+  - [Education Policy Fellow](https://docs.google.com/document/d/1xnkHOGFooMRV_r5aMgx2PPz-mDtOL2SPDHmpoMNPF2k/edit?usp=sharing)
 
 - [U.S. Forest Service](http://www.fs.usda.gov/tongass/)
   - [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
 
 - [Trans-Alaska Trail](http://www.aktrail.org). (_Position has been filled._)
-  - [Trans-Alaska Trail Fellow]  (_Position has been filled._)
+  - Trans-Alaska Trail Fellow (_Position has been filled._)
  
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index)
   - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) (_Position has been filled._)

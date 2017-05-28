@@ -29,11 +29,11 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [U.S. Forest Service](http://www.fs.usda.gov/tongass/)
   - [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
 
-- [Trans-Alaska Trail](http://www.aktrail.org). (_Position has been filled._)
+- [Trans-Alaska Trail](http://www.aktrail.org)
   - Trans-Alaska Trail Fellow (_Position has been filled._)
  
 - [Sitka Community Hospital](http://www.sitkahospital.org/getpage.php?name=index)
-  - [Long Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) (_Position has been filled._)
+  - [Long-Term Care Activities Fellow](https://docs.google.com/document/d/11hC2CNaQ3Q4WY2XOq-wLuOjMrs-Yl7mgHjBzvxryFYU/edit?usp=sharing) (_Position has been filled._)
 
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
   - [Recruitment and Engagement Fellow](https://docs.google.com/document/d/12n3w_iRkfIOcHWjAwbWMAH0fwnWcrEgm_LN03DHRWMo/edit) 
@@ -42,9 +42,10 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 - [Sitka Fine Arts Camp](http://fineartscamp.org/)
   - [Performing Arts Center Manager Fellow](https://docs.google.com/document/d/1sdvRp9OxyMnl5YypxGZoX8jsea9xtLH50GcClmRQp_4/edit?usp=sharing) 
+  - [Administration Fellow] (_Position has been filled._)
   
 - [Alaska Huts Association](https://www.alaskahuts.org/)
-  - [Alaska Outdoor Recreation Policy Fellow](https://docs.google.com/document/d/1yysxa5sfkxM3oP3H1AVJZXW0m1S7agXtxwK9kuw5GIM/edit?usp=sharing)  (_Position has been filled._)
+  - [Alaska Outdoor Recreation Policy Fellow](https://docs.google.com/document/d/1yysxa5sfkxM3oP3H1AVJZXW0m1S7agXtxwK9kuw5GIM/edit?usp=sharing) (_Position has been filled._)
 
 And other organizations that do great public works, public advocacy, and educational work in our Sitka and Alaskan community! More to come soon. 
 

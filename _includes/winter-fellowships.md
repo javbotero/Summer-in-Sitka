@@ -29,7 +29,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
   - [Education Policy Fellow](https://docs.google.com/document/d/1xnkHOGFooMRV_r5aMgx2PPz-mDtOL2SPDHmpoMNPF2k/edit?usp=sharing) (_Position has been filled._)
 
 - [U.S. Forest Service](http://www.fs.usda.gov/tongass/)
-  - [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) 
+  - [Public Lands Communications Fellow](https://docs.google.com/document/d/19LqpO2l2dTYrn1Bf3FMtar_U97ayaNFvnx_AD7hU8-w/edit?usp=sharing) (_Position has been filled._)
 
 - [Trans-Alaska Trail](http://www.aktrail.org)
   - Trans-Alaska Trail Fellow (_Position has been filled._)

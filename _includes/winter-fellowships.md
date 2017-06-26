@@ -18,8 +18,8 @@ See below for the current 2017-'18 positions. Additional positions will be added
 
 **The 2017-’18 Sitka Winter Fellows positions are hosted by:**
 
-- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/)
-  - [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.) (_Position has been filled._)
+- [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/) (This position is a 50-50 split between the two host organizations.)
+  - [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (_Position has been filled._)
 
 - [Outer Coast](http://www.outercoast.org/) 
   - [Primary Collaborator Fellow](https://docs.google.com/document/d/1LE2ICn-_Q24TRps2Z2RbByaSJXNwzLIYm9QwBmRRwYo/edit)

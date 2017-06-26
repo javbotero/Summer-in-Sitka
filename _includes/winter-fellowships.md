@@ -21,7 +21,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [Alaska Network on Domestic Violence and Sexual Assault](http://www.andvsa.org/)-[Sitkans Against Family Violence](http://www.safv.org/)
   - [Legal Program Fellow (ANDVSA)-Communications Fellow (SAFV)](https://docs.google.com/document/d/1_ALoDVPx0eJA1vL3gTt02guNgsHzk5OznE4H_vyVJos/edit?usp=sharing) (This position is a 50-50 split between the two host organizations.) (_Position has been filled._)
 
-- [Outer Coast College](http://www.outercoast.org/) 
+- [Outer Coast](http://www.outercoast.org/) 
   - [Primary Collaborator Fellow](https://docs.google.com/document/d/1LE2ICn-_Q24TRps2Z2RbByaSJXNwzLIYm9QwBmRRwYo/edit)
 
 - [Sitka School District](http://www.sitkaschools.org/site/default.aspx?PageID=1) 
@@ -40,11 +40,7 @@ See below for the current 2017-'18 positions. Additional positions will be added
 - [University of Alaska Southeast](http://www.uas.alaska.edu/)
   - [Recruitment and Engagement Fellow](https://docs.google.com/document/d/12n3w_iRkfIOcHWjAwbWMAH0fwnWcrEgm_LN03DHRWMo/edit) 
   - [Science Coach Fellow](https://docs.google.com/document/d/1vDoYi2E26-qJImjtBXLIA0-sucANULjWtLE4OE51xtY/edit) 
-  - [Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit) 
-
-- [Sitka Fine Arts Camp](http://fineartscamp.org/)
-  - [Performing Arts Center Manager Fellow](https://docs.google.com/document/d/1sdvRp9OxyMnl5YypxGZoX8jsea9xtLH50GcClmRQp_4/edit?usp=sharing) 
-  - [Administration Fellow] (_Position has been filled._)
+  - [Fisheries Technology Fellow](https://docs.google.com/document/d/1d-hNmvQ_vM5tcIa_AWqYA5TYUTy7H3No7lpiXlDsft4/edit) (_Position has been filled._)
   
 - [Alaska Huts Association](https://www.alaskahuts.org/)
   - [Alaska Outdoor Recreation Policy Fellow](https://docs.google.com/document/d/1yysxa5sfkxM3oP3H1AVJZXW0m1S7agXtxwK9kuw5GIM/edit?usp=sharing) (_Position has been filled._)
